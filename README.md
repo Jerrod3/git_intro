@@ -1,2 +1,3 @@
 Jerrod Lepper
 7
+Queens of the Stone Age
